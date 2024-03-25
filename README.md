@@ -1,0 +1,2 @@
+# intervyu
+tayyorlaning:
